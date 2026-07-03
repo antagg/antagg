@@ -4,7 +4,7 @@
 
 <img src="https://hits.sh/github.com/antagg.svg?label=%E2%A9%8C%20%CC%AB%20%E2%A9%8C&extraCount=221&color=6b162b&labelColor=a99696&logo=4chan" width="100" hspace="300">
 
-‎<img src="https://i.postimg.cc/gkX7C8vS/7kef4i.gif" width="30" hspace="180"/> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ⊰ ${\color{#9B1C31}Lets}$ ${\color{#9B1C31} see}$ ${\color{#9B1C31}if}$ ${\color{#9B1C31}you}$ ${\color{#9B1C31}really}$ ${\color{#9B1C31}are}$ ${\color{#9B1C31}the}$ ${\color{#e0d8d9}strongest. }$⊱ <img src="https://i.postimg.cc/hPkYcvsS/u1huo2.gif" width="30" hspace="30" />
+‎<img src="https://i.postimg.cc/gkX7C8vS/7kef4i.gif" width="30" hspace="180"/> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ⊰ ${\color{#9B1C31}Lets}$ ${\color{#9B1C31} see}$ ${\color{#9B1C31}if}$ ${\color{#9B1C31}you}$ ${\color{#9B1C31}really}$ ${\color{#9B1C31}are}$ ${\color{#9B1C31}the}$ ${\color{#e0d8d9}strongest. }$⊱ <img src="https://i.postimg.cc/hPkYcvsS/u1huo2.gif" width="30" hspace="30" />
 
 ${\color{#D0DCBB} ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  nya}$ ${\color{#D0D09B}nya}$ ${\color{#B7A679} nya}$ ${\color{#84B27F} 𝕥𝕨𝕥}$
 </p>
