@@ -10,13 +10,12 @@
 
 ‎‎<img src="https://i.postimg.cc/gkX7C8vS/7kef4i.gif" width="30" hspace="-70"/>  ⊰ ${\color{#9B1C31}Lets}$ ${\color{#9B1C31} see}$ ${\color{#9B1C31}if}$ ${\color{#9B1C31}you}$ ${\color{#9B1C31}really}$ ${\color{#9B1C31}are}$ ${\color{#9B1C31}the}$ ${\color{#e0d8d9}strongest. }$⊱ <img src="https://i.postimg.cc/hPkYcvsS/u1huo2.gif" width="30" hspace="10" />
 
-${\color{#D0DCBB} gu}$ ${\color{#D0D09B} gu}$ ${\color{#B7A679} ga}$ ${\color{#84B27F} ga}$
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  [新book](https://veskarr.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://i.postimg.cc/x1WVT90y/1119041752762941470.webp" width="24">‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[prns](https://pronouns.cc/@veskarr)
 
-  <img src="https://media.discordapp.net/attachments/1279830753156530269/1522713055232786612/New_Project-2.png?ex=6a49788b&is=6a48270b&hm=83b29ccd093961da521e95a5829bc5de8d806fa34e8f9144ed4f1caa9127baac&=&format=webp&quality=lossless&width=1520&height=1182" width="430" height="26" />
+
+  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎    <img src="https://i.postimg.cc/cK2CbGks/pink.gif" width="330" height="40" />
 
 <img src="https://media.discordapp.net/attachments/1279830753156530269/1522713055232786612/New_Project-2.png?ex=6a49788b&is=6a48270b&hm=83b29ccd093961da521e95a5829bc5de8d806fa34e8f9144ed4f1caa9127baac&=&format=webp&quality=lossless&width=1520&height=1182" width="450" />
-
- ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎
 
 <img alighn="right" src="https://i.postimg.cc/2S9JJr3D/mh245c.png" width="900" align="centre" hspace="30">
 
