@@ -1,6 +1,6 @@
 <img src="https://i.postimg.cc/9FpsdGhz/msx4jc.png" width="900" align="centre" hspace="30">
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎
-<img align="left" src="https://media.discordapp.net/attachments/1279830753156530269/1522724920444977152/body.png?ex=6a498397&is=6a483217&hm=1de5d3dac96a2895fd82d2052605cc35a3e1178714a8fe46053567e883078dc0&=&format=webp&quality=lossless&width=1142&height=1522" width="290" height="390">
+<img align="left" src="https://media.discordapp.net/attachments/1279830753156530269/1522724920444977152/body.png?ex=6a498397&is=6a483217&hm=1de5d3dac96a2895fd82d2052605cc35a3e1178714a8fe46053567e883078dc0&=&format=webp&quality=lossless&width=1142&height=1522" width="150" height="290">
 
 <img src="https://hits.sh/github.com/antagg.svg?label=%E2%A9%8C%20%CC%AB%20%E2%A9%8C&extraCount=221&color=6b162b&labelColor=a99696&logo=4chan" width="100" hspace="300">
 
