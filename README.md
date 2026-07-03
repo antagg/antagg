@@ -33,7 +33,7 @@ ${\color{#D0DCBB} 𝕚𝕔}$ ${\color{#D0D09B} 𝟡𝕠𝕠𝕞𝕚𝕤𝕙}$ ${
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ <img src="https://komarev.com/ghpvc/?username=idiosyncraticNerd&color=946352" />
 
-<img src="https://media.discordapp.net/attachments/1279830753156530269/1522713055232786612/New_Project-2.png?ex=6a49788b&is=6a48270b&hm=83b29ccd093961da521e95a5829bc5de8d806fa34e8f9144ed4f1caa9127baac&=&format=webp&quality=lossless&width=1520&height=1182" width="550" />
+<img src="https://media.discordapp.net/attachments/1279830753156530269/1522713055232786612/New_Project-2.png?ex=6a49788b&is=6a48270b&hm=83b29ccd093961da521e95a5829bc5de8d806fa34e8f9144ed4f1caa9127baac&=&format=webp&quality=lossless&width=1520&height=1182" width="450" />
 
  ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎
 
