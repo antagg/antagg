@@ -2,7 +2,7 @@
 
 
 
-<img alighn="right" src="https://media.discordapp.net/attachments/1279830753156530269/1523020977716592800/New_Project-4__fliter--dark-crimson-sepia__channel--all__mode--exclusion-5__fliter--dark-crimson-sepia__channel--all__mode--color.png?ex=6a4a9751&is=6a4945d1&hm=6613e453d80c2dffbdaa351937ca64d34a72a348541052e9b07a6e16b20cf269&=&format=webp&quality=lossless&width=1100&height=530" width="900" align="centre" hspace="30">
+<img alighn="right" src="https://media.discordapp.net/attachments/1279830753156530269/1523020977716592800/New_Project-4__fliter--dark-crimson-sepia__channel--all__mode--exclusion-5__fliter--dark-crimson-sepia__channel--all__mode--color.png?ex=6a4a9751&is=6a4945d1&hm=6613e453d80c2dffbdaa351937ca64d34a72a348541052e9b07a6e16b20cf269&=&format=webp&quality=lossless&width=1100&height=530" align="centre" width="700" height="320" hspace="110">
 
 <img align="left" src="https://media.discordapp.net/attachments/1279830753156530269/1522989359794749450/body__fliter--dark-crimson-sepia__channel--all__mode--color__fliter--dark-blue-sepia__channel--all__mode--difference.png?ex=6a4a79df&is=6a49285f&hm=fb78496d758484182bebdc488adb9a7d25431fdf2f7d12c9e82ec11072f9e9f3&=&format=webp&quality=lossless&width=1142&height=1522" witdh="450" height="490">
 
