@@ -10,7 +10,7 @@
 
 ‎‎<img src="https://i.postimg.cc/gkX7C8vS/7kef4i.gif" width="30" hspace="-70"/>  ⊰ ${\color{#9B1C31}Lets}$ ${\color{#9B1C31} see}$ ${\color{#9B1C31}if}$ ${\color{#9B1C31}you}$ ${\color{#9B1C31}really}$ ${\color{#9B1C31}are}$ ${\color{#9B1C31}the}$ ${\color{#e0d8d9}strongest. }$⊱ <img src="https://i.postimg.cc/hPkYcvsS/u1huo2.gif" width="30" hspace="10" />
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  [新book](https://antag.atabook.org) ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://i.postimg.cc/x1WVT90y/1119041752762941470.webp" width="24">‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[prns](https://pronouns.cc/@veskarr)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  [新book](https://antag.atabook.org) ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://i.postimg.cc/x1WVT90y/1119041752762941470.webp" width="24">‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[COMMS](https://veskar.straw.page)
 
 
   ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎    <img src="https://i.postimg.cc/cK2CbGks/pink.gif" width="330" height="40" />
